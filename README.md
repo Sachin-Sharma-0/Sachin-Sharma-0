@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @Sachin-Sharma-0 (Sachin Sharma)
-- 👀 I’m interested in Coding, gaming, game designing, video and graphics editing and many more.
+- 👀 I’m interested in Coding, gaming, editing and many more.
 - 🌱 I’m currently learning various languages and techniques.
 - 📫 How to reach me sachin200215.ssb@gmail.com
 
